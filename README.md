@@ -28,43 +28,10 @@
 3. EXPLICACIÓN Y RESOLUCIÓN DE EJERCICIOS O PROBLEMAS
 
 
-   [![1.png](https://i.postimg.cc/VNtmZkdT/1.png)](https://postimg.cc/8FT2jDdB)
-    
-    [![2.png](https://i.postimg.cc/8cxVb8TD/2.png)](https://postimg.cc/QKgPXyBn)
-    
-    [![3.png](https://i.postimg.cc/y6RBVdj8/3.png)](https://postimg.cc/ThTB0TBz)
-    
-    [![4.png](https://i.postimg.cc/fW87RzR1/4.png)](https://postimg.cc/NLr2NwTx)
-    
-    [![5.png](https://i.postimg.cc/Z5mvZXhC/5.png)](https://postimg.cc/ZCf5x7nS)
-    
-    [![6.png](https://i.postimg.cc/wvNFZSp0/6.png)](https://postimg.cc/JD1bBYtk)
-    
-    [![7.png](https://i.postimg.cc/Vvc48Ds1/7.png)](https://postimg.cc/JDPj33Bd)
-    
-    [![8.png](https://i.postimg.cc/3Jqp5QMg/8.png)](https://postimg.cc/fJxkmFRL)
-    
-    [![9.png](https://i.postimg.cc/K8gTmpFC/9.png)](https://postimg.cc/dhw3BBh9)
-    
-    [![10.png](https://i.postimg.cc/N06rHyK4/10.png)](https://postimg.cc/yJNdq8Xg)
-    
-    [![11.png](https://i.postimg.cc/JhVk03z0/11.png)](https://postimg.cc/dh61Sydc)
-    
-    [![12.png](https://i.postimg.cc/sX3G9VSR/12.png)](https://postimg.cc/v1SmGw3P)
-    
-    [![13.png](https://i.postimg.cc/T14y6gsR/13.png)](https://postimg.cc/0K75GMx3)
-    
-    [![14.png](https://i.postimg.cc/wMvtZ00f/14.png)](https://postimg.cc/dkbtTmMr)
-    
-    [![15.png](https://i.postimg.cc/qRQh19X6/15.png)](https://postimg.cc/5YY20Krf)
-    
-    [![16.png](https://i.postimg.cc/G37TGnmZ/16.png)](https://postimg.cc/6TZQxSR0)
-    
-    [![17.png](https://i.postimg.cc/jdBW36Nc/17.png)](https://postimg.cc/crM4rnFt)
    
 4. Video
 
-https://www.youtube.com/watch?v=xWgsjagHwsw&t=13s
+https://www.youtube.com/watch?v=e-cxWwasZ6o
 
 5. Conclusiones
 
